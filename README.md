@@ -1,0 +1,2 @@
+# MAMT
+Segregation of waste
